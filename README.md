@@ -2,4 +2,4 @@
 
 The beginning
 
-Gold, green, soft, white.. crystal creatures in the night
+Gold, green, soft, white.. crystal creatures of the night
